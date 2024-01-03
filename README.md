@@ -1,5 +1,5 @@
-### Bruh, I make pixels move with magic words from incoherent languges. The Force is strong with this one.
-Collector of Obscure Links and Quirky Random Knowledge(QRK&trade;). Ask me anything.
+### Bruh, I make pixels move with magic words from cool but incoherent languges.
+Collector of Obscure Links and Quirky Random Knowledge (QRK&trade;). The Force is strong with this one.
 
 <p>
 <!-- languages -->
